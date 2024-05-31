@@ -1,0 +1,6 @@
+# STARS OCEAN SECOND STORY R GAMEPLAY PART 2
+### 1170725291732250644
+## Redzone (redzone7915) 11/05/2023 14:04 
+
+> https://youtu.be/9DkaFqvQhG0?si=hv3bCpFOBz4sZbKj
+

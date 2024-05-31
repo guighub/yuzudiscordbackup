@@ -1,0 +1,6 @@
+# CRISIS CORE FINAL FANTASY VII REUNION
+### 1190926797588680784
+## Redzone (redzone7915) 12/31/2023 07:57 
+
+> https://youtu.be/GKbUUIz64Lc?si=hJ_hByShyIHBhpGI
+
