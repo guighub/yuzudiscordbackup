@@ -9,7 +9,7 @@
 ### [#game-mods](game-mods.md)
 #
 
-# The Yuzu Discord Archive
+# The Yuzu Discord Backup
 This is a backup of a few important channels from the Yuzu Discord server, the backup was started a few days after the server went into lockdown and was completed around March 9th, 2024. The server has now been deleted and is not longer accessible outside of archives like this.
 
 Almost every game mod sent in the *\#game-mods* channel (with the extensions .zip, .rar, .7z, .txt, and .pchtxt) and every file in *\#media* are present in this archive, exceptions being random messages and attachments that were deleted during the backup.
